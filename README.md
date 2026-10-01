@@ -1,0 +1,1 @@
+Citation: Miguel A. Fuentes Carreño, "Decriminalisation of Consensual Same-Sex Relations, 1990–2025," map based on ILGA World Database, in Briefing Paper 1: The Decriminalisation Dividend, How LGBTQ+ Legal Reforms Bring Economic Return (1990 – 2025) (London: Open for Business, October 2026).
